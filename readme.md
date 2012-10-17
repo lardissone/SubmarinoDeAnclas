@@ -57,5 +57,14 @@ Vendetta
 King of Dragons  
 ![image](http://i230.photobucket.com/albums/ee181/eliaskeme/0crush023.png)
 
+Prehistoric Isle in 1930  
+![image](http://i230.photobucket.com/albums/ee181/eliaskeme/0str0nger07.png)
+
+Wonder Boy  
+![image](http://i230.photobucket.com/albums/ee181/eliaskeme/000h1mmer.png)
+
+Bad Dudes vs. Dragonninja  
+![image](http://i1067.photobucket.com/albums/u438/sneekyweezel/0004.png)
+
 
 
