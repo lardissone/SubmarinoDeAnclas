@@ -1,3 +1,5 @@
+### Favorite MAME games
+
 The Punisher  
 ![image](http://www.romnation.net/rn/screenshots/10969.jpg)
 
@@ -36,5 +38,24 @@ Snow Bros.
 
 Ghouls 'n Ghosts  
 ![image](http://www.romnation.net/rn/screenshots/10032.jpg)
+
+Shinobi  
+![image](http://www.retrocpu.com/mame/images/roms/s/shinobi_set_4_system_16b_mc-8123b_317-0054.png)
+
+Blood Bros.  
+![image](http://img523.imageshack.us/img523/4214/0001fmp.png)
+
+Caveman Ninja  
+![image](http://i230.photobucket.com/albums/ee181/eliaskeme/Cntitlescreen0000.png)
+
+Captain Commando  
+![image](http://i230.photobucket.com/albums/ee181/eliaskeme/0bazooka007.png)
+
+Vendetta  
+![image](http://i546.photobucket.com/albums/hh424/Grazuntor/0026.png)
+
+King of Dragons  
+![image](http://i230.photobucket.com/albums/ee181/eliaskeme/0crush023.png)
+
 
 
