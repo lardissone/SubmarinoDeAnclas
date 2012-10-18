@@ -69,3 +69,5 @@ Bad Dudes vs. Dragonninja
 Pang
 ![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSaLGa69_q-BU4DPuir66lC2cWS-fox47wZtgXufXpdGz73n338)
 
+Kung-Fu Master
+![image](http://i1067.photobucket.com/albums/u438/sneekyweezel/0025-1.png)
